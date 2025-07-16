@@ -1,1 +1,1 @@
-IT-sikkerheds studerende – Særligt interesseret i blue team.
+IT-sikkerhed studerende – Særligt interesseret i blue team.
